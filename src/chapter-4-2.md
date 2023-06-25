@@ -1,5 +1,4 @@
-Chapter 4: Creative Problem-solving: Strategies for Encouraging Creative Problem-solving, including Design Thinking, Brainstorming, and Ideation
-================================================================================================================================================
+# Strategies for Encouraging Creative Problem-solving, including Design Thinking, Brainstorming, and Ideation
 
 Creative problem-solving is an essential skill for success in the corporate world. In this chapter, we will explore strategies for encouraging creative problem-solving, including design thinking, brainstorming, and ideation.
 

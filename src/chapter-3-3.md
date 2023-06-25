@@ -1,5 +1,4 @@
-Chapter 3: Mindful Leadership: The Benefits of Mindful Leadership for Improved Employee Engagement, Trust, and Performance
-==========================================================================================================================
+# The Benefits of Mindful Leadership for Improved Employee Engagement, Trust, and Performance
 
 Mindful leadership is a leadership approach that emphasizes self-awareness, empathy, and compassion. It involves being present in the moment and fully engaged with the people and tasks at hand. In this chapter, we will explore the benefits of mindful leadership for improved employee engagement, trust, and performance.
 

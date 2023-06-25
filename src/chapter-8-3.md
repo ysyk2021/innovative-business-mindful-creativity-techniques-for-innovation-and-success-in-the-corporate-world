@@ -1,5 +1,4 @@
-Chapter 8: Mindful Workplace Culture: The Benefits of Mindful Workplace Culture for Improved Employee Retention, Reputation, and Social Responsibility
-======================================================================================================================================================
+# The Benefits of Mindful Workplace Culture for Improved Employee Retention, Reputation, and Social Responsibility
 
 A mindful workplace culture can have many benefits for companies, including improved employee retention, reputation, and social responsibility. In this chapter, we will explore the benefits of creating a mindful workplace culture.
 
