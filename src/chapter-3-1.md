@@ -1,4 +1,4 @@
-Chapter 3: Mindful Leadership
+Mindful Leadership
 =============================
 
 In today's rapidly changing business environment, successful leadership requires a combination of mindfulness and creativity. Mindful leadership involves being present in the moment, observing one's thoughts and feelings without judgment, and making decisions that are grounded in compassion and empathy. In this chapter, we will explore the benefits of mindful leadership and how leaders can cultivate mindfulness in the workplace.

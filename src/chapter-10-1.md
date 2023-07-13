@@ -1,4 +1,4 @@
-Chapter 10: Sustaining Innovation
+Sustaining Innovation
 =================================
 
 In this chapter, we will explore the concept of sustaining innovation and how it can help businesses maintain their competitive edge. We will discuss strategies for sustaining innovation and the benefits of doing so.

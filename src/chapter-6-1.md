@@ -1,4 +1,4 @@
-Chapter 6: Communication and Collaboration
+Communication and Collaboration
 ==========================================
 
 Effective communication and collaboration are crucial for innovation and success in the corporate world. In this chapter, we will explore the importance of communication and collaboration in the workplace and provide techniques for improving these skills.

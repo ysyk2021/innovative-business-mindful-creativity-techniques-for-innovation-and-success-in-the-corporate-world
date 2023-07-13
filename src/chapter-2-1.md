@@ -1,4 +1,4 @@
-Chapter 2: The Science of Innovation
+The Science of Innovation
 ====================================
 
 Innovation is a crucial factor in the success of businesses today. In this chapter, we will explore the science of innovation, including what it is and how it impacts corporate success.

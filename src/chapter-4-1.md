@@ -1,4 +1,4 @@
-Chapter 4: Creative Problem-Solving
+Creative Problem-Solving
 ===================================
 
 Innovation and success in the corporate world often require creative problem-solving skills. In this chapter, we will explore the importance of creativity in problem-solving and provide techniques for developing and implementing these skills.

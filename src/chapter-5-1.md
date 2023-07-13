@@ -1,4 +1,4 @@
-Chapter 5: Adaptive Decision-Making
+Adaptive Decision-Making
 ===================================
 
 In today's rapidly changing business environment, adaptive decision-making is critical for success. It involves making decisions based on a comprehensive analysis of data, risk management, and emotional intelligence. In this chapter, we will explore strategies for practicing adaptive decision-making.

@@ -1,4 +1,4 @@
-Chapter 8: Mindful Workplace Culture
+Mindful Workplace Culture
 ====================================
 
 Creating a mindful workplace culture is essential for fostering creativity, innovation, and success in the corporate world. A mindful workplace culture prioritizes employee well-being, diversity and inclusion, and sustainability, among other things. In this chapter, we'll explore strategies for creating a mindful workplace culture and the benefits that come with it.
