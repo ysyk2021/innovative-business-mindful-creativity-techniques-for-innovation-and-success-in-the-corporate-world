@@ -1,5 +1,3 @@
-Chapter 5: Adaptive Decision-making
-===================================
 
 Adaptive decision-making is a critical skill for success in the corporate world. It involves making decisions based on changing circumstances and data, taking into account both rational analysis and emotional intelligence. In this chapter, we will explore adaptive decision-making and strategies for making adaptive decisions.
 

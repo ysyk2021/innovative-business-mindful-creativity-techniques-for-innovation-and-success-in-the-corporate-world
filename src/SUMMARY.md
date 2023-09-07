@@ -42,3 +42,4 @@
   - [The Benefits of Sustaining Innovation for Continued Business Growth, Market Leadership, and Social Impact](chapter-10-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

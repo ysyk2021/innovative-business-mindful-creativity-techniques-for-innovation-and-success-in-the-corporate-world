@@ -1,4 +1,4 @@
-# Introduction
+
 
 In today's rapidly changing business landscape, innovation is key to success. Companies that fail to innovate risk becoming irrelevant, losing market share, and falling behind the competition. However, innovation can be difficult, especially in high-pressure corporate environments that prioritize speed, efficiency, and results over creativity and reflection. That's where mindful creativity comes in.
 
@@ -9,3 +9,7 @@ Throughout the book, we'll cover a range of topics related to mindful creativity
 Whether you're a CEO, manager, entrepreneur, or team member, this book will provide practical insights and guidance for using mindful creativity to drive innovation and success in your organization. By adopting a mindful approach to business, you can enhance your focus and productivity, build stronger relationships with colleagues and customers, and make meaningful contributions to society. So let's get started and discover the power of mindful creativity in the corporate world!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

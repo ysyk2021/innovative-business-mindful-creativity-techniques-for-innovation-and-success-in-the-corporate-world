@@ -1,5 +1,3 @@
-Mindfulness, Creativity, and Innovation
-=======================================================================================
 
 Innovation is a critical driver of success in the corporate world. However, innovation is only effective if it is grounded in mindfulness and creativity. In this chapter, we will explore the key concepts of mindfulness, creativity, and innovation and how they relate to business success.
 

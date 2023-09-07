@@ -1,5 +1,3 @@
-Chapter 3: Mindful Leadership
-=============================
 
 In this chapter, we will explore the concept of mindful leadership and its importance in promoting innovation and success in the corporate world.
 
@@ -26,5 +24,4 @@ Conclusion
 ----------
 
 Mindful leadership is essential for promoting innovation and success in today's fast-paced and ever-changing business environment. By cultivating self-awareness, empathy, and authenticity, leaders can build trust, foster creativity, and improve employee engagement and performance. In the following chapters, we will explore specific techniques and strategies for developing mindful leadership qualities and applying them in the corporate world.
-
 

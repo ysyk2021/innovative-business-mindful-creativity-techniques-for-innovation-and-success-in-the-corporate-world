@@ -1,5 +1,3 @@
-Chapter 2: The Science of Innovation
-====================================
 
 Innovation is a critical component of success in the corporate world. In this chapter, we will discuss the science of innovation, strategies for understanding the cognitive, behavioral, and organizational factors associated with innovation, and the benefits of the science of innovation for improved understanding, compassion, and problem-solving.
 

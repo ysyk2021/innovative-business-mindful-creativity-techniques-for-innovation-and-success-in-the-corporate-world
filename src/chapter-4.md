@@ -1,5 +1,3 @@
-Chapter 4: Creative Problem-solving
-===================================
 
 Creative problem-solving is a critical skill for success in the corporate world. It involves generating new and innovative solutions to complex problems. In this chapter, we will explore creative problem-solving and strategies for encouraging it.
 

@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Innovation is a critical driver of success and growth in the corporate world. It involves generating new ideas, products, or services that meet the needs of customers or clients. In this chapter, we will explore the need for innovation, key concepts such as mindfulness, creativity, and innovation, and the importance of mindful creativity techniques for improved innovation and success in the corporate world.
 
