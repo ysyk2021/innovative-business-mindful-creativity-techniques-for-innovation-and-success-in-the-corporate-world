@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Creating a Mindful Workplace Culture
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a mindful workplace culture is essential for fostering innovation, employee engagement, and long-term success in the corporate world. In this chapter, we will explore effective strategies for cultivating a mindful workplace culture, with a focus on employee well-being, diversity and inclusion, and sustainability.
 

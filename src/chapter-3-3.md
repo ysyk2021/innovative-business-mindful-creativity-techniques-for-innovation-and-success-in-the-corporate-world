@@ -1,5 +1,4 @@
-Chapter 9: The Benefits of Mindful Leadership for Improved Employee Engagement, Trust, and Performance
-======================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Mindful leadership is a powerful approach that can positively impact employee engagement, trust, and performance within organizations. In this chapter, we will explore the various benefits of mindful leadership and how it contributes to creating a more productive and harmonious work environment.
 

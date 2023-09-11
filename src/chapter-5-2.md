@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Making Adaptive Decisions: Data Analysis, Risk Management, and Emotional Intelligence
-===============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Innovation in the corporate world requires making adaptive decisions that are based on a combination of data analysis, risk management, and emotional intelligence. In this chapter, we will explore strategies to effectively utilize these three elements in decision-making processes.
 

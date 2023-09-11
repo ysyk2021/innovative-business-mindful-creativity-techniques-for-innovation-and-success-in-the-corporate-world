@@ -1,5 +1,4 @@
-Chapter 4: Adaptive Decision-Making
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Adaptive decision-making is a critical aspect of navigating the complex and rapidly changing corporate world. In this chapter, we will explore the concept of adaptive decision-making and discuss strategies to effectively make decisions in dynamic environments.
 

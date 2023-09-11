@@ -1,5 +1,4 @@
-Chapter 7: Mindful Leadership
-=============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Mindful leadership is a transformative approach that combines the principles of mindfulness with effective leadership practices. In this chapter, we will explore the concept of mindful leadership and its significance in fostering innovation and success within the corporate world.
 

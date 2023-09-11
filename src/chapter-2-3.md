@@ -1,5 +1,4 @@
-Chapter 6: The Benefits of the Science of Innovation for Improved Understanding, Compassion, and Problem-Solving
-================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Innovation is not limited to its impact on business success alone; it extends far beyond that. The science of innovation brings numerous benefits that go beyond the corporate world. In this chapter, we will explore how embracing the principles of innovation can lead to improved understanding, compassion, and problem-solving in various aspects of life.
 

@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Implementing Innovation: Prototyping, Testing, and Launching
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Implementing innovation requires careful planning and execution to bring ideas to life successfully. In this chapter, we will explore strategies for effectively implementing innovation through prototyping, testing, and launching.
 

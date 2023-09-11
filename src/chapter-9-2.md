@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Overcoming Innovation Challenges
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Innovation challenges are inevitable in the corporate world, but with the right strategies, organizations can overcome them and drive successful innovation. In this chapter, we will explore effective strategies for overcoming common innovation challenges, including resistance to change, budget constraints, and legacy systems.
 

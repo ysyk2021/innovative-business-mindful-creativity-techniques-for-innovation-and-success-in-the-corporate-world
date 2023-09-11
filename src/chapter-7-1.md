@@ -1,5 +1,4 @@
-Chapter 8: Innovation Implementation
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Implementing innovation is a critical step in the journey towards achieving success and realizing the full potential of innovative ideas. In this chapter, we will explore the key factors, strategies, and considerations involved in effectively implementing innovation within the corporate world.
 

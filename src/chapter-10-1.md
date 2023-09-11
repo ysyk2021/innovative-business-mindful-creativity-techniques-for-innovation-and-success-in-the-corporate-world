@@ -1,5 +1,4 @@
-Chapter 12: Sustaining Innovation
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Sustaining innovation is a crucial aspect of driving long-term success and growth in the corporate world. In this chapter, we will explore the concept of sustaining innovation and discuss strategies to foster a culture of continuous innovation within organizations.
 
